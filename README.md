@@ -1,0 +1,1 @@
+# K132-Veri-Bilimi-Hafta-1-Veri-Seti-Okuma-Olusturma-CanDeniz
